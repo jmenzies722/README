@@ -1,4 +1,4 @@
-👋 Hi there! I'm Joshua Menzies
+👋 Hi there! I'm Josh
 
 🌟 Welcome to my profile! I'm a passionate software engineer with a diverse tech stack and a love for creating impactful applications and solutions. Let's dive in and explore what I have to offer:
 

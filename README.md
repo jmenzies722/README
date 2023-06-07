@@ -19,7 +19,6 @@ Check out my 🔗 GitHub for a collection of projects showcasing my skills in So
 🌍 NSBE National Society Black Engineers: Actively participated from 2019 to 2023.
 📄 Website: https://jmenzies722.github.io/Portfolio/ 
 
-Take a look at my detailed resume for more information on my education, project experiences, and honed skills.
-
 Feel free to reach out to me via LinkedIn for any collaboration or job opportunities.
+
 🚀 Let's connect and create something amazing together!
